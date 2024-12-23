@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @NIILLKA
+- 👀 I’m interested in I'm interested in programming, mathematics and exact sciences, sports and foreign languages)
+- 🌱 I’m currently learning in 9 class)
+- 📫 How to reach me tg:@Niillkl discord:niill
+- ⚡ Fun fact: I am VERY emotional, if the topic and the interlocutor are more pleasant to me, I am ready to talk with him for hours. I love cookies and tea with lemon. And play video games
